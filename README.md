@@ -1,2 +1,2 @@
 # Billatoro.com
-There`s no reason for living.
+There`s no specific reason for living.
